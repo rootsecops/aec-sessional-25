@@ -1,2 +1,0 @@
-# aec-sessional-25
-AEC SESSIONAL EXAM 2025
